@@ -1,6 +1,8 @@
-#hello-world
 
 sup
 
 wanna play cs.16?
-i have 5 DLC cs
+
+I have 3 DLC of counter strike
+
+Wanna play after this?
